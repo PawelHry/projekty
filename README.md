@@ -1,1 +1,1 @@
-# Prosił bym sprawdzać od najnowszych
+# Prosił bym czytać od najnowszych
